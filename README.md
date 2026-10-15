@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @SandyFlagg
-- 📫 Reach out via LinkedIn (www.linkedin.com/in/sandyflagg) or email (sandyflagg4@gmail.com) for collaborations or conversations on our shared interests.
+- 📫 Reach out via LinkedIn (www.linkedin.com/in/sandyflagg) or email (sandyflagg4@gmail.com)
